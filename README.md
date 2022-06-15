@@ -2,7 +2,7 @@
 
 Die elektrische Kartoffel ist ein legendäres Gericht, welches dereints von den Vier Köchen zubereitet werden wird.
 
-Jeder der Vier wird sich seine Zeit nehmen, um am Kochtopf zu stehen und seine persönlichen Geheimrezepte in die Kreation einfließen zu lassen.
+Jeder der Vier wird einmal den Kochtopf erhalten und sich seine Zeit nehmen, um seine persönlichen Geheimrezepte in die Kreation einfließen zu lassen.
 
 Von allen Experten wird das Mahl mit Spannung erwartet.
 
